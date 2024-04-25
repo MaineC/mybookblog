@@ -1,6 +1,6 @@
 ---
 title: "Book: Zusammenleben, was ist das?"
-date: 2024-04-25T09:36:07+01:00
+date: 2024-04-25T08:36:07+01:00
 tags: [book, buch, philosophy]
 ---
 
