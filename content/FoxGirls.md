@@ -1,7 +1,7 @@
 ---
 title: "Buch: Fox Girls"
-date: 2024-04-22T10:55:07+01:00
-tags: [book, buch, ai]
+date: 2024-04-27T11:00:07+01:00
+tags: [book, buch, Magie, Freundschaft]
 ---
 
 # Buch: Fox Girls
