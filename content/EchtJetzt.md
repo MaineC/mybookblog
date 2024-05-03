@@ -1,5 +1,5 @@
 ---
-title: "Echt Jetzt?!
+title: "Echt Jetzt?!"
 date: 2024-05-03T11:00:07+01:00
 tags: [book, buch, Freundschaft, Nervige Mutter]
 ---
