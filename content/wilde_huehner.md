@@ -13,7 +13,7 @@ Das Haptquartier der *Pygm채en* ist in den W채ldern hinter dem Wohnwagen der *H�
 
 Da gibt es zum Beispiel Steve, der f체r sein Leben gern zaubert, dann ist da noch Fred, der Chef der Jungsbande, Willi, der st채rkste und schnellste der *H체hner* und *Pygm채en* und Torte, das lauteste Mitglied der *Pygm채en*.
 
-Mann sollte das Buch lesen, weil es eine gute Mischung aus Witz und Spannung hat. Aber ich warne dich, falls du einmal an die spannende Stelle im Buch gekommen bist, dann kannst du es nicht so schnell wieder weglegen!
+Man sollte das Buch lesen, weil es eine gute Mischung aus Witz und Spannung hat. Aber ich warne dich, falls du einmal an die spannende Stelle im Buch gekommen bist, dann kannst du es nicht so schnell wieder weglegen!
 Falls du also zu lange und 체ber die Bettzeit hinausliest, ich bin jedenfalls nicht schuld!
 
 
