@@ -1,6 +1,6 @@
 ---
 title: "Die unlangweiligste Schule der Welt, Zeugnisalarm"
-date: 2025-06-22T10:00:07+01:00
+date: 2025-06-21T10:00:07+01:00
 tags: [book, buch, Freundschaft, Schule]
 ---
 
